@@ -1,0 +1,1 @@
+c'est curieux chez les marins cette habituded efaire des phrases
